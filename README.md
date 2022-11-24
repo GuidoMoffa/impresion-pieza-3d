@@ -10,4 +10,4 @@
 
 
 >entrego el el power point al llegar a mi casa :D
-!https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.lmcipolletti.com%2Ftwitter-un-hilo-la-vida-homero-simpson-se-hizo-viral-n784280&psig=AOvVaw2dvgjVip3M6IXfOlxQ3Oao&ust=1669402443559000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCPjz7-6-x_sCFQAAAAAdAAAAABAI
+!<https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.lmcipolletti.com%2Ftwitter-un-hilo-la-vida-homero-simpson-se-hizo-viral-n784280&psig=AOvVaw2dvgjVip3M6IXfOlxQ3Oao&ust=1669402443559000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCPjz7-6-x_sCFQAAAAAdAAAAABAI>
